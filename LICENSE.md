@@ -1,4 +1,4 @@
-
+Enhance Descript for macOS with top Descript for macOS Filter | reverb + motion-tracking, the #1 filter. Includes reverb and motion-tracking for a smoother and more creative
 
 
 
